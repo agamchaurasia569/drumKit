@@ -15,7 +15,7 @@ Sound Quality: High-quality drum samples ensure that each tap sounds authentic a
 
 Gameplay:<br>
 
-Launch Simple Drum Kit and start playing instantly. Tap on the different parts of the drum kit to create beats and rhythms. There are no complicated menus or settings—just a pure and straightforward drumming experience. Whether you want to practice drumming basics or have fun creating your own beats,  Drum Kit Game is the perfect choice.<br>
+Launch Drum Kit and start playing instantly. Tap on the different parts of the drum kit to create beats and rhythms. There are no complicated menus or settings—just a pure and straightforward drumming experience. Whether you want to practice drumming basics or have fun creating your own beats,  Drum Kit Game is the perfect choice.<br>
 
 Target Audience:<br>
 
